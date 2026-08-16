@@ -1,16 +1,21 @@
-## Hi there 👋
+# "-."
+<p align="center">
+<img width="1000" height="50" src="https://64.media.tumblr.com/19d5333360581dac1dc5010929b295e1/23ed47ab718aec4c-32/s1280x1920/9905b545600e8bac3fa71070f1ee9c38d5cb434c.png">
+</p>
+<p align="center">
+<img width="600" height="400" img src="https://files.catbox.moe/hdg6yf.png">
+</p
 
-<!--
-**chiaakinanami/chiaakinanami** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+###### Chia ! ☆ He / Him
+neurodiv & anxious
+##### check my [prns.cc](https://pronouns.cc/@Cyberbunny) for extended info
 
-Here are some ideas to get you started:
+<p align="center">
+<img src="https://files.catbox.moe/jo5lt1.gif">
+</p
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ᯓ★ Interests ! ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ Danganronpa, Dead by Daylight, League of Legends, Raincode
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ Overwatch, Welcome to the Game, Project Sekai, Silent Hill
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ VTubers, Your Turn to Die, Last Defense Academy, Fragpunk
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ Madoka Magica, Wonder egg Priority, Needy Streamer Overload
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ Tower of Fantasy, Cyberpunk, Texas Chainsaw Massacre, T1
